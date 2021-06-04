@@ -1,5 +1,5 @@
 -  Hey, I’m @akashmir (ya thats my name not a place)
--  I’m some what a noob coder,wasted developer,or call me simple cracker(not a hacker) 
+-  I’m some what a coder(copy paste),developer but wasted,or simply a cracker(not a hacker) 
 -  I’m currently not learning anything just fcuked off
 -  You can contact me on 
 instagram.com/akashmir.official
